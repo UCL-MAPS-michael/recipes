@@ -8,7 +8,7 @@
 
 ## Ingrediants:
 * Avos
-* Lemon
+* Lime
 * Salt
 
 ## Instructions:
