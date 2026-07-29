@@ -8,7 +8,10 @@
 
 ## Ingrediants:
 * Avos
-* Lime
+* Orange
 * Salt
+* Onion
+* Chocolate
+* 
 
 ## Instructions:
